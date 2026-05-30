@@ -2,7 +2,7 @@
 
 **Available for contract, fractional, or full-time backend work**
 
-Lafayette, CO | Remote | [dan@mccarty.dev](mailto:dan@mccarty.dev)
+Lafayette, CO | Remote | [dan.mccarty.dev@gmail.com](mailto:dan.mccarty.dev@gmail.com)
 
 ---
 
