@@ -14,6 +14,8 @@ Recent focus: Ruby on Rails backend platforms, APIs, PostgreSQL optimization, cl
 
 Strong ownership mindset across backend architecture, databases, DevOps, and production operations.
 
+Available for contract, fractional, and backend engineering work.
+
 ---
 
 ## TECH STACK
